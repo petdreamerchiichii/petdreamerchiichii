@@ -2,7 +2,14 @@
 
 <div align="center">
 
-[Atabook](https://potatochipieforeversss.atabook.org/)
+[Atabook!](https://potatochipieforeversss.atabook.org/)
 
 </div>
+
+<div align="center">
+  
+[Pronouns Page!](https://en.pronouns.page/@petdreamerchii)
+
+</div>
+
 
