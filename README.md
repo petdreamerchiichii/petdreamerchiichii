@@ -4,18 +4,10 @@
 
 [Atabook!](https://potatochipieforeversss.atabook.org/)
 
-(If you want me to respond more 'faster', ask or tell me things on my strawpage gimmicks!)
-
 </div>
 
 <div align="center">
   
 [Pronouns Page!](https://en.pronouns.page/@petdreamerchii)
-
-</div>
-
-<div align="center">
-
-[Strawpage !](https://chiisamazingawesomesoverycool.straw.page/)
 
 </div>
